@@ -18,4 +18,4 @@ When I'm not coding, you can find me:
 
 Let’s Connect:
 [X](www.x.com/execayan)
-[Linkedin]([url](https://www.linkedin.com/in/ayan-shaikh-413a41169/))
+[Linkedin](https://www.linkedin.com/in/ayan-shaikh-413a41169/)
